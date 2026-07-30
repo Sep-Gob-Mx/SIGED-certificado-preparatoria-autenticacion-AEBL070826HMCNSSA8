@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-AEBL070826HMCNSSA8
+AEBL070826HMCNSSA8
